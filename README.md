@@ -1,3 +1,3 @@
-The paper is submitted to ICARCV for review.
+The paper is submitted to ICARCV 2022 for review.
 
 To be added soon...
